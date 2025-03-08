@@ -1,2 +1,2 @@
 # Privacy-Policy
-PDMA Privac
+PDMA Privacy Policy
